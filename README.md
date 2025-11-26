@@ -42,3 +42,14 @@ To get started with CreatiGen-AI, follow these steps:
 
 ## Hackathon Details
 CreatiGen-AI was developed during the 2025 Global AI Hackathon, where teams from around the world competed to create innovative solutions using AI technologies. Our project showcased the potential of AI in fostering creativity and collaboration among users.
+
+base44
+lexesa9018@moondyal.com
+King@786
+
+amewati356@gmail.com 
+for removebg.com
+
+https://creati-gen-ai-0413d732.base44.app
+
+
